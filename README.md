@@ -1,2 +1,2 @@
-# Dream
-My Dream is become a Big House & become a trillionnaire
+# Title Proposal
+The name of our title proposal is "Queuepal"

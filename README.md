@@ -1,2 +1,2 @@
-# Crush
-My name of my crush : Dollen Faye Sabalboro
+# Fav Food
+My favorite food is Pork Humba & Kalderang Kambing

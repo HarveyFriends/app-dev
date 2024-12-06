@@ -1,2 +1,2 @@
-# Fav Food
-My favorite food is Pork Humba & Kalderang Kambing
+# Fav Place
+My Favorite place is Bagalangit.
